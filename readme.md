@@ -1,0 +1,1 @@
+tentando aprender a merda do git sem chorar antes
